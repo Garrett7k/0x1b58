@@ -1,3 +1,3 @@
 # 0x1b58!
 
-![image](https://user-images.githubusercontent.com/60473870/168965666-e95d572e-2e3e-47ec-97ae-ff4934d7efa1.png)
+![image](https://user-images.githubusercontent.com/60473870/168965811-4e61db7d-497e-4301-854d-e232aee9ea9e.png)
